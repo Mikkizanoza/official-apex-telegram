@@ -128,11 +128,13 @@
 
 ## Полная карточка Apex
 
-➡️ https://officialtgchannels.com/apex-telegram/
+👉 **Подробная карточка Apex:**
+https://officialtgchannels.com/apex-telegram/
 
 ## Каталог OfficialTGChannels
 
-➡️ https://officialtgchannels.com/
+👉 **Каталог OfficialTGChannels:**
+https://officialtgchannels.com/
 
 ---
 
