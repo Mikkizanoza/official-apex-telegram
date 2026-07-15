@@ -21,14 +21,14 @@
 
 ---
 
-# Быстрый доступ
+## Быстрый доступ
 
-- 📢 Официальный Telegram
+- [📢 Официальный Telegram](https://telegram.me/s/apex_telegram_casino)
 - 🌐 Официальный сайт
 - 🔑 Вход
 - 📝 Регистрация
 - 🛟 Поддержка
-- ❓ Частые вопросы
+- [📚 Карточка Apex в каталоге](https://officialtgchannels.com/apex-telegram/)
 
 ---
 
@@ -52,7 +52,7 @@
 
 Используйте только подтвержденные ресурсы и не доверяйте аккаунтам, которые первыми связываются с вами в Telegram.
 
-Проверенный Apex казино телеграм https://telegram.me/s/apex_telegram_casino
+[Перейти в официальный Telegram Apex](https://telegram.me/s/apex_telegram_casino)
 
 ---
 
@@ -131,12 +131,12 @@
 ## Полная карточка Apex
 
 👉 **Подробная карточка Apex:**
-https://officialtgchannels.com/apex-telegram/
+[Подробная карточка Apex на OfficialTGChannels](https://officialtgchannels.com/apex-telegram/)
 
 ## Каталог OfficialTGChannels
 
 👉 **Каталог OfficialTGChannels:**
-https://officialtgchannels.com/
+[Перейти в каталог OfficialTGChannels](https://officialtgchannels.com/)
 
 ---
 
